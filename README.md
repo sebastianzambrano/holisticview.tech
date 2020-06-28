@@ -1,1 +1,1 @@
-# holisticview.tech
+# sz
